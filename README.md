@@ -3,6 +3,6 @@
 
 Laboratilner i kursen 1ik415
 
-Hej! 
+Hejsan!
 
 
